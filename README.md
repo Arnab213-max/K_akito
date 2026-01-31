@@ -9,11 +9,7 @@ Hello World, this is my Profile
 
 - 🔭 I’m currently working on **clothing store**
 
-- I’m currently studying in **DAV COllege (BCA ) Degree**
-
-- 🌱 I’m currently learning **Mern stack & devops**
-
-- 👯 I’m looking to collaborate on **colthing Brands**
+- 👯 I’m looking to collaborate on **clothing Brands**
 
 - 🤝 I’m looking for help with **high profile clothing brands**
 
