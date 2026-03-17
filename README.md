@@ -1,6 +1,6 @@
 
 # About Me:
-I'm Currently working on clothing Store<br>I'm looking to collaborate on clothing brands <br>I'm looking for help with  a high clothing brand stroe <br>Ask me about how much i would enjo in the field<br>Fun Fact- enjoys  a lot & meets the deadline project  
+I'm Currently working on clothing Store<br>I'm looking to collaborate on clothing brands <br>I'm looking for help with  a high clothing brand stroe <br>Ask me about how much i would enjoy in this field<br>Fun Fact- enjoys  a lot  , a travel freak & Gym freak too 
 
 
 ## Socials:
