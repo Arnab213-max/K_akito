@@ -1,5 +1,4 @@
-# K_akito
-ABOUT ME👋
+
 # About Me:
 I'm Currently working on clothing Store<br>I'm looking to collaborate on clothing brands <br>I'm looking for help with  a high clothing brand stroe <br>Ask me about how much i would enjo in the field<br>Fun Fact- enjoys  a lot & meets the deadline project  
 
