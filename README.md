@@ -1,4 +1,6 @@
-
+<div align="center">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=24&duration=3000&pause=500&center=true&vCenter=true&width=600&lines=BCA+Student+%7C+Front-End+Developer;UI%2FUX+Designer+%7C+Creative+Thinker;Building+Beautiful+UI/UX+Experiences" alt="Typing SVG" />
+</div>
 # About Me:
 I'm Currently working on clothing Store<br>I'm looking to collaborate on clothing brands <br>I'm looking for help with  a high clothing brand stroe <br>Ask me about how much i would enjoy in this field<br>Fun Fact- enjoys  a lot  , a travel freak & Gym freak too 
 
